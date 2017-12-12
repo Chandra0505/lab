@@ -1,0 +1,1 @@
+This software is belong to Chandra Prakash
